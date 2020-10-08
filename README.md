@@ -12,5 +12,7 @@ Hi, I'm Carlos, although I started 👨🏻‍💻 this journey late, it still i
 - ⚡ Fun fact: ... 🤦‍♂️I began coding a year ago...
 - 🔭 Searching for work to get my 👣 wet.
 
-<iframe src='https://gfycat.com/ifr/AdorableSlightBarnswallow' frameborder='0' scrolling='no' allowfullscreen width='640' height='556'></iframe>
+
 <img src="https://thumbs.gfycat.com/AdorableSlightBarnswallow-mobile.mp4" />
+https://thumbs.gfycat.com/AdorableSlightBarnswallow-mobile.mp4
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=854065516816597877" height="299" width="345" frameborder="0" scrolling="no" ></iframe>
