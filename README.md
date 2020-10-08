@@ -12,5 +12,3 @@ Hi, I'm Carlos, although I started 👨🏻‍💻 this journey late, it still i
 - ⚡ Fun fact: ... 🤦‍♂️I began coding a year ago...
 - 🔭 Searching for work to get my 👣 wet.
 
-
-<img src='https://media.giphy.com/media/xr7h97oQVTnAk/giphy.gif' width='500px'/>
