@@ -13,6 +13,4 @@ Hi, I'm Carlos, although I started 👨🏻‍💻 this journey late, it still i
 - 🔭 Searching for work to get my 👣 wet.
 
 
-<img src="https://thumbs.gfycat.com/AdorableSlightBarnswallow-mobile.mp4" />
-https://thumbs.gfycat.com/AdorableSlightBarnswallow-mobile.mp4
 <iframe src="https://assets.pinterest.com/ext/embed.html?id=854065516816597877" height="299" width="345" frameborder="0" scrolling="no" ></iframe>
