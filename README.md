@@ -13,4 +13,4 @@ Hi, I'm Carlos, although I started 👨🏻‍💻 this journey late, it still i
 - 🔭 Searching for work to get my 👣 wet.
 
 
-<img src='https://media.giphy.com/media/xr7h97oQVTnAk/giphy.gif' />
+<img src='https://media.giphy.com/media/xr7h97oQVTnAk/giphy.gif' width=500px/>
