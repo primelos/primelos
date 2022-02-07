@@ -2,7 +2,7 @@
 
 Hi, I'm Carlos, although I started 👨🏻‍💻 this journey late, it still is better than never!
 
-- 🏆 I recentlty completed 🌎 [Lambda School](https://lambdaschool.com/)
+- 🏆 I recentlty completed 🌎 [BloomTech](https://lambdaschool.com/)(Lambda School)
 - 🌱 I’m currently learning React.js
 - 👯 I’m looking to collaborate on ... React.js
 - 🤔 I’m looking for help with ... Redux
